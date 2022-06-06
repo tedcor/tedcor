@@ -1,4 +1,4 @@
-I’m @tedcor
+I’m @tedcor,
 I’m interested in cryptocurrency, programming and gaming.
 
 
